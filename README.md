@@ -1,0 +1,1 @@
+# Dynamic-Carbon-Pricing-Model-for-Indian-Industries-and-Whole-of-India-2026-
